@@ -1,4 +1,4 @@
-# Hi there 👋
+# 🦆 Quack.
 Discord: Kanye East#1939
 <br>
 Steam: lemonke.eth
