@@ -1,5 +1,5 @@
 # 🦆 Quack.
-Discord: Kanye East#1939
+Discord: bemonke
 <br>
 Steam: lemonke.eth
 ## About
